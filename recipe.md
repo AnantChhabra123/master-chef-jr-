@@ -1,0 +1,1 @@
+take a pan place on gas pour 1 cup of water bring it to boil then add maggi masala then add maggi coock it for 5 min then its ready:}
